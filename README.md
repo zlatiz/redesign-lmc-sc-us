@@ -1,1 +1,0 @@
-# redesign-lmc-sc-us
